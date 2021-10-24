@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @EricLiu672
-- 👀 I’m interested in neuroscience, music
+- 👋 Hi, I’m @EricLiu672, just call me Eric or Yipeng (my Chinese name)
+- 👀 I’m interested in neuroscience, music (piano performance)
 - 🌱 I’m currently learning medical BA, economics co-BA
 - 💞️ I’m looking to collaborate on neuroscience (emotion coding, stress disorders, visual cortex / encoding)
 - 📫 How to reach me: by 3180105291@zju.edu.cn, 825401415@qq.com, or my wechat ID: 13702877946
